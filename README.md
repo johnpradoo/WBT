@@ -9,5 +9,5 @@ and it seems surprising to me, I recommend not updating until you see what it is
 @WhatsApp @AlexModscom #WhatsApp #whatsapplus @johnpradoo
 
 
-**by: @johnpradoo**
-The ``hacker`` and dispenser of WhatsApp plus ACB, finds a binary and recommends not updating or making WhatsApp calls until 24 hours, **JOHN PRADO**, mentions that he is working with **Alex**.
+``by: @johnpradoo``
+The ``hacker`` and dispenser of WhatsApp plus ACB, finds a binary and recommends not updating or making WhatsApp caluntil 24 hours, **JOHN PRADO**, mentions that he is working with **Alex**.
